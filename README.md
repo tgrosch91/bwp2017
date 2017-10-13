@@ -2,4 +2,4 @@
 Better With Pets
 
 Team members:
-Robert, Teresa, Ashley, Erin
+Robert, Teresa, Ashley, Erin, Amanda
